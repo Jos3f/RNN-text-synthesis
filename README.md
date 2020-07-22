@@ -50,7 +50,5 @@ Figure 2: Smooth loss evolution for 100 epochs.
 
 #### Example of text synthesis:
 
->lly in right of the Harry.  He would got and the Firt than the feam, her Chather into his fanged to rorge up and this scarted a smares into her aller of you?"
-"Don't not and thinking to giving to day,
-
+>"But Hagrid, and with so only had about his agred and said to siven out on of them on the step the certher carried them enter. "See knows slidnars. Pount, and get that's him and his fire of Hermione which of of owe to started her now. "Don't table. "Oh Weasley morning to and someed it, chere. Moody had so slows; lookians was hore has as the egg siden into getter a of Madget the time was magicule from the luftis days fice her under reared." "Lo, and a didn't sazihm to disundinger that a mon looked me like the mourem. "When he looked a crow, and past with the hizg you they wasn't clotelber to go looking madiins was here to sure thing. They're for the flevecon slowly." "Wheer. CHal- firit are," said Moody, and spuy didn't sweremely didn't he saw Krum, and Dumbledores been and ready trying to the work, and down prosed like not and her say, smart more up place arry as Hermione standing reager to dran't were spon't out of the mistion year of the from the two was idea still and was ou
 
